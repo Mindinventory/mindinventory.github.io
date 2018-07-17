@@ -1,0 +1,1 @@
+# mindinventory.github.io
